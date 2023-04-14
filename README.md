@@ -9,7 +9,7 @@ Personalmente cuando pienso en la depresión, se me viene a la mente una impoten
 
 Algún desbalance emocional, haya sido atraves del tiempo o bien, un impacto inesperado. 
 
-### Algunos ejemplos de ello son:
+#### Algunos ejemplos de ello son:
 1. Traumas de la infancia que no han sido tratados y que pueden llegar a ser detonantes de una depresión dormida
 2. Los vicios, el consumo de alcohol o diferentes drogas que alteran el **sistema límbico** (donde nuestro cerebro genera emociones de miedo, tristeza, alegria, enojo. etc)
 3. Alguna perdida de un ser querido o ser cercano y no saber como sobre llevarlo.
