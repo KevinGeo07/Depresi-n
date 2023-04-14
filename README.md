@@ -18,12 +18,12 @@ Algún desbalance emocional, haya sido a través del tiempo o bien, un impacto i
 
 ![image](https://user-images.githubusercontent.com/129207265/231928104-33dabcdb-6328-42a4-a975-b76bb65e51ae.png)
 
-***¿Como podemos hacer para ayudar a personas que pasan por problemas como estos y como auto ayudarnos?***
+*¿Como podemos hacer para ayudar a personas que pasan por problemas como estos y como auto ayudarnos?*
 
 Es necesario comprender a estas personas, no ridiculizarlos o pasar por alto la situación, es importante actuar en el momento que notemos actitudes de aislamiento, descontrol de emociones y otras ya mencionadas. La mejor manera para apoyarlos es ponernos en su lugar, tener una interacción constante, expresar confianza o simplemente acompañarlos en el proceso. <br> Siendo a nosotros los que nos perjudica, es necesario considerar la ayuda, buscar actividades recreativas que según [Redalyc. Revista de autocuidados](https://www.redalyc.org/pdf/801/80103902.pdf) son hacer ejercicio, buena alimentación, una interacción social regular, asistir a terapias etc. Nos va a ayudar con nuestro recuperamiento y mayor confianza en nosotros mismos.
 
 <img src= "https://terapiasanarte.cl/wp-content/uploads/2023/02/Psicologia-online-para-la-depresion.jpg " alt=" depression" width="300" height="250">
 
-*Para refleccionar* 
+**Para refleccionar** 
 
 Hoy en día vivimos en una sociedad muy remota, donde cada persona es sumamente independiente y el hablar de temas de suicidio, depresión, ansiedad entre otros, se a vuelto un tabú, algo que avergüenza y que buscamos solucionar por nuestra cuenta. Quizás las redes sociales tengan influencia sobre esto, sobre nuestra autoestima, sobre nuestra manera de actuar por querer ser como otros y lo más curioso es que en redes nunca se proyecta la realidad, son utilizadas para subir nuestros mejores momentos, cosas de nuestro interés y al igual es una manera de entretenimiento donde los logaritmos saben lo que necesitamos ver, es algo que no nos permite el estar aburridos y que en lo que mi concierne, el estar aburridos es algo importante, es cuando nuestra mente comienza a explotar la imaginación , donde la creatividad comienza a ponerse en práctica. <br> Cosa que las redes sociales no nos permite, nos va a conducir por el camino que los algoritmos elijan, así estemos felices podemos terminar viendo videos donde nos hagan dudar, así que debemos ser cuidadosos, priorizar nuestro tiempo, estar conscientes de cuando alejarnos del celular, computadora, pantalla etc. Y poner a funcionar nuestra mente.
