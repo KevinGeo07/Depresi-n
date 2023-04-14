@@ -19,7 +19,8 @@ Algún desbalance emocional, haya sido atraves del tiempo o bien, un impacto ine
 ![image](https://user-images.githubusercontent.com/129207265/231928104-33dabcdb-6328-42a4-a975-b76bb65e51ae.png)
 
 ***¿Como podemos hacer para ayudar a personas que pasan por problemas como estos y como auto ayudarnos?***
+
 Es necesario comprender a estas personas, no ridiculizarlos o pasar por alto la situación, es importante actuar en el momento que notemos actitudes de aislamiento, descontrol de emociones y otras ya mencionadas. La mejor manera para apoyarlos es ponernos en su lugar, tener una interacción constante, expresar confianza o simplemente acompañarlos en el proceso. <br> Siendo a nosotros los que nos perjudica, es necesario considerar la ayuda, buscar actividades recreativas que según [Redalyc. Revista de autocuidados](https://www.redalyc.org/pdf/801/80103902.pdf) son el hacer ejercicio, buena alimentación, una interacción social regular, asistir a terapias etc, nos va a ayudar con nuestro recuperamiento y mayor confianza en nosotros mismos.
 
-<img src= "https://terapiasanarte.cl/wp-content/uploads/2023/02/Psicologia-online-para-la-depresion-1024x717.jpg " alt=" depression" width="300" height="250">
+<img src= "https://terapiasanarte.cl/wp-content/uploads/2023/02/Psicologia-online-para-la-depresion-1024x717.jpg " alt=" depression" width="300" height="200">
 
