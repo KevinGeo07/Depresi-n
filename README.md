@@ -11,7 +11,7 @@ Algún desbalance emocional, haya sido atraves del tiempo o bien, un impacto ine
 
 #### Algunos ejemplos de ello son:
 1. Traumas de la infancia que no han sido tratados y que pueden llegar a ser detonantes de una depresión dormida
-2. Los vicios, el consumo de alcohol o diferentes drogas que alteran el **sistema límbico** (donde nuestro cerebro genera emociones de miedo, tristeza, alegria, enojo. etc)
+2. Los vicios, el consumo de alcohol o diferentes drogas que alteran el [Sistema Límbico](https://psicologiaymente.com/neurociencias/sistema-limbico-cerebro)
 3. Alguna perdida de un ser querido o ser cercano y no saber como sobre llevarlo.
 4. El aislamiento social, la falta de interacción sin que ese tiempo sea ocupado en algo productivo, deja espacios para sobrepensar y llegar a varias conclusiones erroneas.
 
@@ -19,4 +19,4 @@ Algún desbalance emocional, haya sido atraves del tiempo o bien, un impacto ine
 ![image](https://user-images.githubusercontent.com/129207265/231928104-33dabcdb-6328-42a4-a975-b76bb65e51ae.png)
 
 ***¿Como podemos hacer para ayudar a personas que pasan por problemas como estos y como auto ayudarnos?***
-Es necesario comprender a estas personas, no ridiculizarlos o pasar por alto la situación, es importante actuar en el momento que notemos actitudes de aislamiento, descontrol de emociones y otras ya mencionadas. La mejor manera para apoyarlos es ponernos en su lugar, tener una interacción constante
+Es necesario comprender a estas personas, no ridiculizarlos o pasar por alto la situación, es importante actuar en el momento que notemos actitudes de aislamiento, descontrol de emociones y otras ya mencionadas. La mejor manera para apoyarlos es ponernos en su lugar, tener una interacción constante, expresar confianza o simplemente acompañarlos en el proceso. 
