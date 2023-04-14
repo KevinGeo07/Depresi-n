@@ -15,4 +15,7 @@ Algún desbalance emocional, haya sido atraves del tiempo o bien, un impacto ine
 3. Alguna perdida de un ser querido o ser cercano y no saber como sobre llevarlo.
 4. El aislamiento social, la falta de interacción sin que ese tiempo sea ocupado en algo productivo, deja espacios para sobrepensar y llegar a varias conclusiones erroneas.
 
+
 ![image](https://user-images.githubusercontent.com/129207265/231928104-33dabcdb-6328-42a4-a975-b76bb65e51ae.png)
+
+***¿Como podemos hacer para ayudar a personas que pasan por problemas como estos y como auto ayudarnos?***
