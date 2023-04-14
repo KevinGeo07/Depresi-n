@@ -19,3 +19,4 @@ Algún desbalance emocional, haya sido atraves del tiempo o bien, un impacto ine
 ![image](https://user-images.githubusercontent.com/129207265/231928104-33dabcdb-6328-42a4-a975-b76bb65e51ae.png)
 
 ***¿Como podemos hacer para ayudar a personas que pasan por problemas como estos y como auto ayudarnos?***
+Es necesario comprender a estas personas, no ridiculizarlos o pasar por alto la situación, es importante actuar en el momento que notemos actitudes de aislamiento, descontrol de emociones y otras ya mencionadas. La mejor manera para apoyarlos es ponernos en su lugar, tener una interacción constante
