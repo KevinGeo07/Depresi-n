@@ -15,4 +15,4 @@ Algún desbalance emocional, haya sido atraves del tiempo o bien, un impacto ine
 3. Alguna perdida de un ser querido o ser cercano y no saber como sobre llevarlo.
 4. El aislamiento social, la falta de interacción sin que ese tiempo sea ocupado en algo productivo, deja espacios para sobrepensar y llegar a varias conclusiones erroneas.
 
-[<img src = "Depresión. JPEG Image">] (https://milacamilahome.files.wordpress.com/2019/09/img_0849.jpg)
+[<img src = "Depresión. JPEG">] (https://milacamilahome.files.wordpress.com/2019/09/img_0849.jpg)
