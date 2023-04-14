@@ -16,3 +16,5 @@ Algún desbalance emocional, haya sido atraves del tiempo o bien, un impacto ine
 4. El aislamiento social, la falta de interacción sin que ese tiempo sea ocupado en algo productivo, deja espacios para sobrepensar y llegar a varias conclusiones erroneas.
 
 [<img src = "Depresión. JPG">] (https://milacamilahome.files.wordpress.com/2019/09/img_0849.jpg)
+
+![image](https://user-images.githubusercontent.com/129207265/231928104-33dabcdb-6328-42a4-a975-b76bb65e51ae.png)
