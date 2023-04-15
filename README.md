@@ -22,12 +22,12 @@ Algún desbalance emocional, haya sido a través del tiempo o bien, un impacto i
 
 Es necesario comprender a estas personas, no ridiculizarlos o pasar por alto la situación, es importante actuar en el momento que notemos actitudes de aislamiento, descontrol de emociones y otras ya mencionadas. La mejor manera para apoyarlos es ponernos en su lugar, tener una interacción constante, expresar confianza o simplemente acompañarlos en el proceso. <br> Siendo a nosotros los que nos perjudica, es necesario considerar la ayuda, buscar actividades recreativas que según [Redalyc. Revista de autocuidados](https://www.redalyc.org/pdf/801/80103902.pdf) son hacer ejercicio, buena alimentación, una interacción social regular, asistir a terapias etc. Nos va a ayudar con nuestro recuperamiento y mayor confianza en nosotros mismos.
 
-![](Psicologia-online-para-la-depresion-1024x717.jpg)
+![](Psicologia-online-para-la-depresion-1700x1000.jpg)
 
 Windows(C:)/usuarios/kevin/Psicologia-online-para-la-depresion.jpg
 
 
-![](Psicologia-online-para-la-depresion-width="300".jpg)
+![](Psicologia-online-para-la-depresion.jpg)
 
 " alt=" depression" width="300" height="450">
 {width="300" height="450"}
