@@ -27,7 +27,7 @@ Es necesario comprender a estas personas, no ridiculizarlos o pasar por alto la 
 Windows(C:)/usuarios/kevin/Psicologia-online-para-la-depresion.jpg
 
 
-![Windows(C:)/usuarios/kevin/Psicologia-online-para-la-depresion.jpg](Psicologia-online-para-la-depresion.jpg)
+![Psicologia-online-para-la-depresion.jpg](Windows(C:)/usuarios/kevin/Psicologia-online-para-la-depresion.jpg)
 
 " alt=" depression" width="300" height="450">
 {width="300" height="450"}
