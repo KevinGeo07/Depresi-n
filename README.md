@@ -25,6 +25,8 @@ Es necesario comprender a estas personas, no ridiculizarlos o pasar por alto la 
 ![Psicologia-online-para-la-depresion.jpg](Windows(C:)/usuarios/kevin/Psicologia-online-para-la-depresion.jpg)
 
 
+![Windows(C:)/usuarios/kevin/Psicologia-online-para-la-depresion.jpg](Psicologia-online-para-la-depresion.jpg)
+
 <img src= "https://terapiasanarte.cl/wp-content/uploads/2023/02/Psicologia-online-para-la-depresion.jpg " alt=" depression" width="300" height="450">
 
 - **Para refleccionar** 
