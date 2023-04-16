@@ -24,15 +24,17 @@ Es necesario comprender a estas personas, no ridiculizarlos o pasar por alto la 
 
 ![](Psicologia-online-para-la-depresion-1700x1000.jpg)
 
-Windows(C:)/usuarios/kevin/Psicologia-online-para-la-depresion.jpg
-
 
 ![](Psicologia-online-para-la-depresion.jpg)
 
-" alt=" depression" width="300" height="450">
-{width="300" height="450"}
 
 
 - **Para refleccionar** 
 
 Hoy en día vivimos en una sociedad muy remota, donde cada persona es sumamente independiente y el hablar de temas de suicidio, depresión, ansiedad entre otros, se a vuelto un tabú, algo que avergüenza y que buscamos solucionar por nuestra cuenta. Quizás las redes sociales tengan influencia sobre esto, sobre nuestra autoestima, sobre nuestra manera de actuar por querer ser como otros y lo más curioso es que en redes nunca se proyecta la realidad, son utilizadas para subir nuestros mejores momentos, cosas de nuestro interés y al igual es una manera de entretenimiento donde los logaritmos saben lo que necesitamos ver, es algo que no nos permite el estar aburridos y que en lo que mi concierne, el estar aburridos es algo importante, es cuando nuestra mente comienza a explotar la imaginación , donde la creatividad comienza a ponerse en práctica. <br> Cosa que las redes sociales no nos permite, nos va a conducir por el camino que los algoritmos elijan, así estemos felices podemos terminar viendo videos donde nos hagan dudar, así que debemos ser cuidadosos, priorizar nuestro tiempo, estar conscientes de cuando alejarnos del celular, computadora, pantalla etc. Y poner a funcionar nuestra mente.
+
+Windows(C:)/usuarios/kevin/Psicologia-online-para-la-depresion.jpg
+
+" alt=" depression" width="300" height="450">
+{width="300" height="450"}
+
